@@ -10,7 +10,7 @@
 
 . . / 🕊 ; NAMES/NICKNAME PREFERRED TO BE CALLED: ↓
 
-( ○ ✦ ; Clazhor, /sadison, /enomi, /fabuler, /hekulze, / — carl / dynamie .  ) 
+( ○ ✦ ; Clazhor, /sadison, /enomi, /fabuler, /hekulze, / — carl / dynamie, / Pest .  ) 
 
 
             .         ✦       . 
