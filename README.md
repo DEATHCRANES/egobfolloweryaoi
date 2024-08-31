@@ -31,8 +31,9 @@
 
 • ; DANDYS WORLD
 
-• ; interact any fandom atp, I'd love to learn more about others! 
+• ; ZOMBIE ATTACK
 
+• ; interact any fandom atp, I'd love to learn more about others! 
 
            .          ✦        . 
 
