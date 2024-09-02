@@ -35,7 +35,7 @@
 
 • ; GASA4
 
-• ; ROBLOX NPCS ARE GETTING SMARTER
+• ; ROBLOX NPCS ARE BECOMING SMARTER
 
 • ; interact any fandom atp, I'd love to learn more about others! 
 
