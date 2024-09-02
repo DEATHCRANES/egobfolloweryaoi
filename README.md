@@ -10,7 +10,7 @@
 
 . . / 🕊 ; NAMES/NICKNAME PREFERRED TO BE CALLED: ↓
 
-( ○ ✦ ; Clazhor, /sadison, /enomi, /fabuler, /hekulze, / — carl / dynamie, / Pest .  ) 
+( ○ ✦ ; Clazhor, /sadison, /enomi, /fabuler, /hekulze, / — carl / dynamie, / Pest, /Damian Ambrose .  ) 
 
 
             .         ✦       . 
@@ -36,6 +36,8 @@
 • ; GASA4
 
 • ; ROBLOX NPCS ARE BECOMING SMARTER
+
+• ; CF1225
 
 • ; interact any fandom atp, I'd love to learn more about others! 
 
