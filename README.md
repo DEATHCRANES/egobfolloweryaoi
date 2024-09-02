@@ -1,3 +1,5 @@
+(follow my cool mentioned friends and dad gheyre very sweet people) 
+
 ↓ 
 
 💣 . . ; ✦ ︴˙∘. INTRODUCING: 'CLAZHOR'
