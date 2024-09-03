@@ -30,8 +30,6 @@
 
 [⭐] • ; emerson x pest shippers 
 
-• ; DANDYS WORLD
-
 • ; ZOMBIE ATTACK
 
 • ; GASA4
