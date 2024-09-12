@@ -24,7 +24,7 @@
 
 • ; DAYS UNION / THE NIGHT COALITION (I don't support admins.) 
 
-• ; ROBLOX MYTHS
+• ; ROBLOX MYTHS (I am not used to all myths, u can tell one to me.. plz be nice)
 
 • ; COOKIE RUN KINGDOM 
 
