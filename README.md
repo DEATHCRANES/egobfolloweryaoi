@@ -11,7 +11,7 @@
 
 . . / 🕊 ; NAMES/NICKNAME PREFERRED TO BE CALLED: ↓
 
-( ○ ✦ ; Clazhor, /sadison, /enomi, /fabuler, /hekulze, / — carl / dynamie, / Pest, /Damian Ambrose .  ) 
+( ○ ✦ ; Clazhor, /sadison, /enomi, /fabuler, /hekulze, / — carl / dynamie, / Pest, /Damian Ambrose / dandy / astro, / sprout .  ) 
 
 
             .         ✦       . 
