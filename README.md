@@ -1,20 +1,20 @@
 
 ↓ 
 
-💣 . . ; ✦ ︴˙∘. INTRODUCING: 'CLAZHOR'
+୨ৎ . . ; ✦ ︴˙∘. INTRODUCING: 'CLAZHOR'
 
 
 ○ ✦ ;  ALL PRONOUNS;(preferred xe/he/they) 
 
 
-             .        ✦       . 
+⋆˚🐾˖°      .        ✦       . 
 
 . . / 🕊 ; NAMES/NICKNAME PREFERRED TO BE CALLED: ↓
 
 ( ○ ✦ ; Clazhor, /sadison, /enomi, /fabuler, /hekulze, / — carl / dynamie, / Pest, /Damian Ambrose / dandy / astro, / sprout .  ) 
 
 
-            .         ✦       . 
+            .         ✦       . 🥀
 
 . . / 🦂 ; ✦ [ PLZ INTERACT !] 💣
 
