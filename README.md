@@ -7,7 +7,9 @@
 ○ ✦ ;  ALL PRONOUNS;(preferred xe/he/they) 
 
 
-⋆˚🐾˖°      .        ✦       . 
+⋆˚🐾˖° 
+
+            .        ✦       . 
 
 . . / 🕊 ; NAMES/NICKNAME PREFERRED TO BE CALLED: ↓
 
