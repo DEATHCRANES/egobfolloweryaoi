@@ -16,7 +16,7 @@
 ( ○ ✦ ; Clazhor, /sadison, /enomi, /fabuler, /hekulze, / — carl / dynamie, / Pest, /Damian Ambrose / dandy / astro, / sprout .  ) 
 
 
-            .         ✦       . 🥀
+            .         ✦       . 
 
 . . / 🧁 ; ✦ [ PLZ INTERACT !] 🍋
 
