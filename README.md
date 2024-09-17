@@ -18,7 +18,7 @@
 
             .         ✦       . 🥀
 
-. . / 🦂 ; ✦ [ PLZ INTERACT !] 💣
+. . / 🧁 ; ✦ [ PLZ INTERACT !] 🍋
 
 • ; The robloxia: Until dawn REMAKE
 
@@ -29,8 +29,6 @@
 • ; ROBLOX MYTHS (I am not used to all myths, u can tell one to me.. plz be nice)
 
 • ; COOKIE RUN KINGDOM 
-
-[⭐] • ; emerson x pest shippers 
 
 • ; ZOMBIE ATTACK
 
