@@ -64,6 +64,8 @@ and I'll be nice back to you, we can be friends if wanted :]
 pls don'take insp off my ponies, unless you ask for permission and I agree. 
 
 
+            .         ✦         . 
+
 . . / 🍓  .   ✦ / [ PONYTOWN AREAS ]
 
 
