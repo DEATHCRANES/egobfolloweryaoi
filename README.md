@@ -18,9 +18,9 @@
 
             .         ✦       . 
 
-. . / 🧁 ; ✦ [ PLZ INTERACT !] 🍋
+. . / 🧁 ; ✦ [ INTERESTS !] 🍋
 
-• ; The robloxia: Until dawn REMAKE
+• ; The robloxia: Until dawn [REMAKE]
 
 • ; Regretevator
 
@@ -37,6 +37,12 @@
 • ; ROBLOX NPCS ARE BECOMING SMARTER
 
 • ; CF1225
+
+• ; SPRUNKI ( incredibox mod)
+
+• ; RAKOOF
+
+• ; DANDYS WORLD
 
 • ; interact any fandom atp, I'd love to learn more about others! 
 
