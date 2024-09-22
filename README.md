@@ -71,7 +71,7 @@ pls don'take insp off my ponies, unless you ask for permission and I agree.
 
 [ Dandy's world area ] , :
 
- I'm always at the tree, when you see me don't be shy to say hi, but don't always say hi , I'm not really active and I recommend for you to whisper me instead, that way I'll try my best to reply quick. 
+ I'm always at the tree, when you see me, ur free to cud anytime u want. /nf, I'm not really active and I recommend for you to whisper me instead, that way I'll try my best to reply quick. 
 
 I'm very common to see in the dandys world area, where I'm very much used to be in. 
 
