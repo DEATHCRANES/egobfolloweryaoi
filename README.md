@@ -1,7 +1,7 @@
 
 ↓ 
 
-୨ৎ . . ; ✦ ︴˙∘. INTRODUCING: 'CLAZHOR'
+୨ৎ  .  . ; ✦ ︴˙∘. INTRODUCING: 'CLAZHOR'
 
 
 ○ ✦ ;  ALL PRONOUNS;(preferred xe/he/they) 
@@ -62,6 +62,8 @@ I'm very shy please be kind to me
 and I'll be nice back to you, we can be friends if wanted :]
 
 pls don'take insp off my ponies, unless you ask for permission and I agree. 
+
+I'm also not in the phighting community anymore. Idk how to change my github user. That's why😭, don't mistake me as a phighting fan!!!!!!!! 
 
 
             .         ✦         . 
