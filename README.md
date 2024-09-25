@@ -7,18 +7,19 @@
 ○ ✦ ;  ALL PRONOUNS;(preferred xe/he/they) 
 
 
-⋆˚🐾˖° 
+⋆˚🌸  ✦┆  .  🕊° 
 
             .        ✦       . 
 
 . . / 🕊 ; NAMES/NICKNAME PREFERRED TO BE CALLED: ↓
 
-( ○ ✦ ; Clazhor, /sadison, /enomi, /fabuler, /hekulze, / — carl / dynamie, / Pest, /Damian Ambrose / dandy / astro, / sprout .  ) 
+( ○ ✦ ; Clazhor, /sadison, /enomi, /fabuler, /hekulze, / — carl / dynamie, / Pest, /Damian Ambrose / dandy / astro, / sprout . , or any skin I'm in! You can call me anything you want.) 
 
 
             .         ✦       . 
 
-. . / 🧁 ; ✦ [ INTERESTS !] 🍋
+. . / 🧁    ✦┆  .💌 ; ✦ [ INTERESTS !] 💫
+
 
 • ; The robloxia: Until dawn [REMAKE]
 
@@ -49,7 +50,7 @@
            .          ✦        . 
 
 
-  .   .   / 🌈 ; ✦ [ REMINDERS ]
+  .   .   / 🌈. ; ✦ [ REMINDERS ] ┆  . 💌🧁 
 
 I'm a minor, from what u can tell. 
 Adults are free to interact!, please just don't be weird.
@@ -68,7 +69,7 @@ I'm also not in the phighting community anymore. Idk how to change my github use
 
             .         ✦         . 
 
-. . / 🍓  .   ✦ / [ PONYTOWN AREAS ]
+. . / 💌  .   ✦ / [ PONYTOWN AREAS ]  🌸 . }
 
 
 [ Dandy's world area ] , :
