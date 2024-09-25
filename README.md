@@ -78,6 +78,8 @@ I'm also not in the phighting community anymore. Idk how to change my github use
 
 I'm very common to see in the dandys world area, where I'm very much used to be in. 
 
+. 
+
 
 [ PHIGHTING! area ] , : 
 
@@ -86,6 +88,8 @@ I'm not always gonna be in this area, I'll only be here SOMETIMES when I'm lonel
 don't be surprised if you don't see me in the dw area and see me in the phighting area. 
 
 rlly rare to see me in the phighting area tho lol since I'm not in the fandom anymore
+
+. 
 
 
 [ REGRETEVATOR area ] , : 
