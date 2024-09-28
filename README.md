@@ -2,4 +2,14 @@
     
 
        I recommend not to interact.
-          unl u goodie:]
+          unl ur brave enough:]
+
+
+✦  , ︴🍮🐾 , | you can call me ;
+        
+       simoko
+        clazhor
+         hekulze
+          enomi
+          gigi
+         , 🥞
