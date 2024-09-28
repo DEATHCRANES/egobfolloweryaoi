@@ -12,7 +12,7 @@
          hekulze
           enomi        ✦
           gigi
-💌       icsian
+        icsian
         
          , 🥞
 
