@@ -1,4 +1,4 @@
  , TO  DUST  , THOU SHALT RETURN
     
 
-             simoko  , clazhor , hekulze . 
+             I recommend not to interact. unl u goodie:]
