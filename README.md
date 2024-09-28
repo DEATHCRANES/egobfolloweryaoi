@@ -17,4 +17,8 @@
          , 🥞
 
 
-✦  , ︴. 
+✦  , ︴.  please don't interact if these are one of your interests,
+
+      . ; okegom
+    . ; tcoaal
+  . ; monster x mediator
