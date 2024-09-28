@@ -7,9 +7,9 @@
 
 ✦  , ︴🍮🐾 , | you can call me ;
         
-       simoko
+       simoko    , ✦
         clazhor
          hekulze
-          enomi
+          enomi        ✦
           gigi
          , 🥞
