@@ -22,3 +22,12 @@
          . ; okegom
         . ; tcoaal
       . ; monster x mediator
+
+
+💌 , | [ interests ] ! ;
+
+          ✦.  : Dandys world
+         ✦.  : The robloxia:until dawn
+        ✦.  : sprunki
+       ✦. : 
+ 
