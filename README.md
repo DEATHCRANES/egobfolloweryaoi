@@ -38,11 +38,11 @@
      [ reminders ]
 
  , 🦈 ; 
-     please dont, copy or take insp-
-         off my skins ingame. 
-    it makes me uncomfortable, - 
-     knowing that someone just took-
-      insp, without my permission. 
+          please dont, copy or take insp-
+          off my skins ingame. 
+          it makes me uncomfortable, - 
+          knowing that someone just took-
+          insp, without my permission. 
 
 
         
