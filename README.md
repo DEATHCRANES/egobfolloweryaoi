@@ -1,11 +1,11 @@
-💫
+🎮
     
 
        I recommend not to interact.
           unl ur brave enough:]
 
 
-✦  , ︴🍮🐾 , | you can call me ;
+✦  , ︴🌊🕊 , | you can call me ;
         
        simoko    , ✦
         clazhor
@@ -14,7 +14,7 @@
           gigi
         icsian
         
-         , 🥞
+         , 🦈
 
 
 ✦  , ︴.  please don't interact if these are one of your interests,
@@ -24,7 +24,7 @@
       . ; monster x mediator
 
 
-💌 , | [ interests ] ! ;
+ 🫧 , | [ interests ] ! ;
 
             ✦.  : Dandys world
           🕊.  : The robloxia:until dawn
@@ -33,5 +33,17 @@
          , / can't list all, I'm have
            lot of-
               interests.
+
+
+     [ reminders ]
+
+ , 🦈 ; 
+     please dont, copy or take insp-
+         off my skins ingame. 
+    it makes me uncomfortable, - 
+     knowing that someone just took-
+      insp, without my permission. 
+
+
         
  
