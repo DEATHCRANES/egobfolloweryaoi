@@ -38,6 +38,7 @@
      [ reminders ]
 
  , 🦈 ; 
+
           please dont, copy or take insp-
           off my skins ingame. 
           it makes me uncomfortable, - 
