@@ -26,8 +26,11 @@
 
 💌 , | [ interests ] ! ;
 
-          ✦.  : Dandys world
-         ✦.  : The robloxia:until dawn
-        ✦.  : sprunki
-       ✦. : 
+            ✦.  : Dandys world
+          🕊.  : The robloxia:until dawn
+         ✦.  : sprunki
+        🎮. : Zombie attack
+         , / etc, I'm in a lot of-
+              fandoms.
+        
  
