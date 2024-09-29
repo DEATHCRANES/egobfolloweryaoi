@@ -30,8 +30,8 @@
           🕊.  : The robloxia:until dawn
          ✦.  : sprunki
         🎮. : Zombie attack
-         , / can't list all, I'm in a
+         , / can't list all, I'm have
            lot of-
-              fandoms.
+              interests.
         
  
