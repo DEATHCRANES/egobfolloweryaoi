@@ -18,7 +18,7 @@
          , 🦈
 
 
-✦  , ︴.  please don't interact if these are one of your interests,
+✦  , ︴.  please don't interact if these are one of your interests, (I won't force u to unfollow, unless your weird)
 
          . ; okegom
         . ; tcoaal
