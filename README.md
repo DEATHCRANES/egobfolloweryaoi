@@ -27,7 +27,11 @@
 
  🫧 , | [ interests ] ! ;
 
-            ✦.  : Dandys world
+            ✦.  : Dandys world 
+              (idontw play the game
+                 -anymore, thin ice
+                       maybe?) 
+             
           🕊.  : The robloxia:until dawn
          ✦.  : sprunki
         🎮. : Zombie attack
